@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @raaziaqasim14
+- 👀 I’m currently doing Bs Mathematics
+- 📫 How to reach me : raaziaqasim14@gmail.com 
